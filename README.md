@@ -4,7 +4,7 @@
 ![GitHub followers](https://img.shields.io/github/followers/BiggC?style=social)
 ![GitHub commit activity](https://img.shields.io/github/commit-activity/w/drkeefy/BiggC)
 
-
+**__Made with 💔 by drkeefy__**
 ---
 ## Bigg C
 is a Houston rapper & upcoming underground artist!
