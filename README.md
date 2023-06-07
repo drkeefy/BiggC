@@ -10,6 +10,7 @@
 is a Houston rapper & upcoming underground artist!
 
 [Join his Discord](https://discord.gg/k5vcCUtJZQ)
+
 [Follow him on SoundCloud](https://soundcloud.com/biggerc)
 
 ---
